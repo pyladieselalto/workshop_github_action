@@ -13,8 +13,6 @@ Autor:
 * 100g de harina
 * 225g de semola de trigo fina
 * Sal
-* 1 cucharada de levadura
-* 1 sobre de levadura en polvo
 * 600ml de agua
 * Miel
 * Aceite de oliva
